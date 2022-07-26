@@ -1,1 +1,1 @@
-# [Responsite](https://theanonyunknown.github.io/Responsite/)
+# [Responsite](https://vedxp.github.io/Responsite/)
